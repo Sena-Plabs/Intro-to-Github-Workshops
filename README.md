@@ -9,5 +9,6 @@
 3. *Sharks*
 4. *Aardvark*
 
-![Sena's picture smiling for the camera](WhatsApp Image 2022-10-16 at 11.27.36 AM.jpg)
-[My LinkedIn Profile](https://www.linkedin.com/in/sena-okuboyejo-phd-aa27a653/))
+![Sena's picture smiling for the camera](SenaProfilePicture.jpeg)
+
+Here is [My LinkedIn Profile](https://www.linkedin.com/in/sena-okuboyejo-phd-aa27a653/) for more information.

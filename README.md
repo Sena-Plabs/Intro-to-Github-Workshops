@@ -7,4 +7,4 @@
 3. Sharks
 4. Aardvark
 
-![alt text](image.jpg)
+![Sena's picture smiling for the camera](WhatsApp Image 2022-10-16 at 11.27.36 AM.jpg)

@@ -3,11 +3,11 @@
 ### Task 1
 
 
-**Cool Animals**
-1. *Turtles*
-2. *Lioness*
-3. *Sharks*
-4. *Aardvark*
+**About Me**
+1. *Sena Okuboyejo*
+2. *I love to travel and cook*
+3. *I am extroverted introvert*
+4. *Looking to connect*
 
 ![Sena's picture smiling for the camera](SenaProfilePicture.jpeg)
 

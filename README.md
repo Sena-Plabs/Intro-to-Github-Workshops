@@ -6,7 +6,7 @@
 **About Me**
 1. *Sena Okuboyejo*
 2. *I love to travel and cook*
-3. *I am extroverted introvert*
+3. *I am an extroverted introvert*
 4. *Looking to connect*
 
 ![Sena's picture smiling for the camera](SenaProfilePicture.jpeg)
